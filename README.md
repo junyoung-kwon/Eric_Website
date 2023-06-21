@@ -1,2 +1,2 @@
 # Eric_Website
- Version two of my website wowowo
+ Version two of my website :)
